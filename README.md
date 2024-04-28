@@ -1,0 +1,1 @@
+# BGY-belirli-sayida-ortak-arkadaslari-ekleme
